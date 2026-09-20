@@ -78,7 +78,8 @@ Sri Venkateswara College of Engineering, Chittoor
 
 * **LinkedIn:** https://linkedin.com/in/soniya-shaik-8191b9329
 * **GitHub:** https://github.com/soniyashaik29
-
+* **Gmail:** soniyashaik78609@gmail.com
+*  **Contact:** 9391568163
 ---
 
 ### 📄 Resume
